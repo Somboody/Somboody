@@ -1,2 +1,2 @@
-If anyone is reading me, it's me Siraj
-Pretty blank here
+If anyone is reading, it's me Siraj.
+Pretty blank here...
